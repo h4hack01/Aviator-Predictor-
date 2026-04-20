@@ -1,2 +1,3 @@
 # Aviator-Predictor-
-Aviator Predictor Hack 100% accurate 
+Aviator hack 
+Predictor Hack 100% accurate 
